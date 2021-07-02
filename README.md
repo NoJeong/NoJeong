@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### JIRA : https://www.notion.so/NoJeong-7631d3b0aecd4b66a3ead18061e6462f
+### NOTION : https://www.notion.so/NoJeong-7631d3b0aecd4b66a3ead18061e6462f
 
 ### velog : https://velog.io/@op032
 
