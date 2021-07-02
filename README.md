@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-### NOTION : https://www.notion.so/NoJeong-7631d3b0aecd4b66a3ead18061e6462f
+### notion : https://www.notion.so/NoJeong-7631d3b0aecd4b66a3ead18061e6462f
 
-### velog : https://velog.io/@op032
+### blog : https://velog.io/@op032
 
 ### portfolio : https://bit.ly/3x6gGKq
 
